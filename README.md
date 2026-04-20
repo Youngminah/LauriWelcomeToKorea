@@ -156,7 +156,7 @@ Center (중앙)
 <img width="1000" height="562" alt="SS3MJGd52md8QWUMqQdR_iASE0MSzaJMJpfunKqwvNOk10eaIphqeG6wUSEDf0XBOHNudZW0T6s10By2F3GmDw" src="https://github.com/user-attachments/assets/6c7f6fc3-4055-4202-baaa-c1e50a5e4e58" />
 
 - These days very popular in Korea.
-- Its not from Dubai, Korean create it jaja.
+- Although its name contains Dubai, Its not from Dubai, Korean create it jaja.
 - I dont know why its so popular, But
 - If you have a chance to eat, I hope you eat it!
 
