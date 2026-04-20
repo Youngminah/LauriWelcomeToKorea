@@ -137,9 +137,12 @@ Center (중앙)
 
 ### 2. Bulgogi
 
-<img width="750" height="498" alt="11baafbe81803965b17c3ab42a5992cb1" src="https://github.com/user-attachments/assets/d16e727f-8d8a-4abf-8506-dd60736ad697" />
+<img width="1080" height="1080" alt="df939769792632a48a0eba8bc895e8601" src="https://github.com/user-attachments/assets/da24aaaa-2230-4e1d-8e88-453495737309" />
 
 - It's a beef dish, so almost everyone will like it 👻
+   - <img width="550" height="305" alt="SSI_20220907112948_O2" src="https://github.com/user-attachments/assets/523d6909-340d-4bc5-8c72-0dc7a0d87e51" />
+   - It's very very popular TV show in Korea, You can see that people eating Bulgogi in TV Show
+
 
 ### 3. Grilled black pork belly
 
