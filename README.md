@@ -178,11 +178,10 @@ Center (중앙)
 - You should be able to visit most of Seoul's famous attractions in about ~ two days
 - In the case of Jeju Island, there are so many beautiful places that it could take more than a week just to tour the west, east, and north sides.
 - However, I really, really recommend Jeju Island.!! Gorgeous
-- Koreans know quite a bit of English. especially the young people!
-- However, This is me in Jeju
+- This is me in Jeju
    - <img width="428" height="571" alt="KakaoTalk_Photo_2026-04-20-21-10-49" src="https://github.com/user-attachments/assets/e4475cd2-c66d-4e13-8850-6f948ea80ecb" />
    - <img width="384" height="177" alt="KakaoTalk_Photo_2026-04-20-21-10-53" src="https://github.com/user-attachments/assets/f628b97d-1f4a-4c2b-a613-d18a2345b790" />
-
+- Koreans know quite a bit of English. especially the young people! (that means you dont highly need to worry communication) 
  
 
 
