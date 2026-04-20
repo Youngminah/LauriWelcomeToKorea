@@ -36,7 +36,7 @@
 - Do you remember when I used to carry around cute cosmetics?
 - It's one of those cosmetics from back then!!
 - Sweet, girly Korean cosmetics — like a candy box.
-- Lipsticks, blush, BB cream, sheet masks — cute packaging.
+- Recommend color makeup like (Lipsticks, blush, BB cream, sheet masks — cute packaging.), not base makeup (toner, skin.. )
 - Big stores in Hongdae, Gangnam, and Myeongdong.
 - 💡 TIP 💡 Myeongdong stores are tourist-priced — a bit more expensive than the same items in Hongdae. For the
 best deals, shop in Another place.
